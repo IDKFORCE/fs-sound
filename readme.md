@@ -2,6 +2,8 @@
 
 FiveM Weapons & Other Sounds Made By (⸸♱♥IDK_FORCE♥♱⸸#7611)
 
+![picture](https://cdn.discordapp.com/attachments/925861444963168346/1093655499897049230/banner.png)
+
 - ⚙️・Join My Discord And Open Ticket To Give Me Suggestions Or Report A Bug
 
 ```My Discord```
